@@ -1,2 +1,4 @@
 HI! Pampaleao here;
-im actualy Pampaleão but isnt everywhere that accept ã hehe;
+still geting the hold of how to use github
+
+may have some update soon
